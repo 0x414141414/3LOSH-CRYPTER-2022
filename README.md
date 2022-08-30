@@ -1,4 +1,4 @@
-# CRYPTER PRIVATE STUB FUD
+# 3LOSH CRYPTER PRIVATE STUB FUD
 #Using ISO injection to VBS 
 
 ## TELEGRAM : https://t.me/mave12x
